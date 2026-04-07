@@ -42,4 +42,4 @@ If you have questions about this Privacy Policy, please contact us at:
 
 ---  
 
-Feel free to adapt this policy to your specific needs or legal requirements.
+
