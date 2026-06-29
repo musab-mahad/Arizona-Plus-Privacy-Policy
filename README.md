@@ -4,7 +4,7 @@
 
 **Privacy Policy**  
 
-Effective Date:  28 May 2026m
+Effective Date:  28 May 2026mm
 
 **Arizona Plus** ("we," "us," or "our") respects your privacy. This Privacy Policy explains how we collect, use, and protect your information when you use our mobile app.  
 
